@@ -1,2 +1,4 @@
 # khuyen-mai-nap-the-tang-data-mobifone-6-7-2022
 Chương trình khuyến mãi nạp thẻ MobiFone tặng data 6/7/2022
+<p style="text-align: justify;"><a href="https://3gmobifones.com/mobifone-khuyen-mai-nap-tien-tang-data-6-7-2022"><strong>Chương trình khuyến mãi nạp thẻ tặng data Mobi 6/7/2022</strong></a> vô cùng hấp dẫn người dùng. Bên cạnh khuyến mãi tặng tiền, hòa mạng mới thì nạp thẻ nhận ưu đãi dung lượng cũng là chương trình mà đang được người dùng quan tâm. Data được cộng lên đến <strong>10GB</strong> giúp khách hàng có những phút giây trải nghiệm internet cực đã.</p>
+<p style="text-align: justify;">Vì chỉ diễn ra 1 ngày trong tháng, do đó khách hàng hãy nhanh chóng tham gia ngay để nhận data sử dụng thả ga. Tuy nhiên người dùng cần nắm rõ thông tin chi tiết hơn về chương trình. Cùng <a href="http://3gmobifones.com" target="_blank" rel="noopener">3gmobifones.com</a> tìm hiểu ngay trong bài viết sau.</p>
